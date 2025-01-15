@@ -270,7 +270,7 @@ Scale your Business With The Power Of Free!
 The work is done for you. Just turn it on and see the results yourself!
 
 
-[![click](https://github.com/user-attachments/assets/04b1aee7-e526-4d20-8f2d-4a431d97386d)[(https://warriorplus.com/o2/a/l0l8xxb/0)
+[![click](https://github.com/user-attachments/assets/04b1aee7-e526-4d20-8f2d-4a431d97386d)](https://warriorplus.com/o2/a/l0l8xxb/0)
 
 
 
